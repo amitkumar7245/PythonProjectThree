@@ -6,19 +6,19 @@
 🛠️ Kraken Wallet & Kraken Wallet United States Contact Numbers Guide (2025–2026)
 ==================================================================================
 
-**Kraken Wallet Support Number (U.S.) ⌚+1.806.281.2627 OR ⌚1‼️-214-‼️688‼️9672**. Available for wallet recovery, transaction issues, staking questions & more.
+**Kraken Wallet Support Number (U.S.) ⌚+1.806.281.2627 OR ⌚1‼️-636-‼️252‼️0271**. Available for wallet recovery, transaction issues, staking questions & more.
 
 Introduction: Why Wallet Support Matters
 -----------------------------------------
 
 As cryptocurrencies continue to transform global finance, managing digital assets through secure wallets like **Kraken Wallet** has become standard for millions. The Kraken Wallet offers a secure, non-custodial experience — giving users full control over their funds. But with great control comes great responsibility, and when issues arise, responsive **support** is essential.
 
-That’s why the **Kraken Wallet Support Number ⌚+1.806.281.2627 OR ⌚1‼️-214-‼️688‼️9672** is a key resource for users needing urgent, expert assistance.
+That’s why the **Kraken Wallet Support Number ⌚+1.806.281.2627 OR ⌚1‼️-636-‼️252‼️0271** is a key resource for users needing urgent, expert assistance.
 
 What is the Kraken Support?
 ---------------------------
 
-The Kraken Wallet ⌚+1.806.281.2627 OR ⌚1‼️-214-‼️688‼️9672 is a non-custodial, decentralized wallet — meaning only you control your private keys. Features include:
+The Kraken Wallet ⌚+1.806.281.2627 OR ⌚1‼️-636-‼️252‼️0271 is a non-custodial, decentralized wallet — meaning only you control your private keys. Features include:
 
    * Sending/receiving crypto securely
 
@@ -71,7 +71,7 @@ How to Contact Kraken Wallet Support
 
 1. **Dedicated Phone Support**
    
-   * **Call +1-806-281-2627 or +1-214-688-9672**
+   * **Call +1-806-281-2627 or +1-636-252-0271**
    
    * Only use **official numbers** listed on Kraken or in the app to avoid fraud.
 
@@ -110,21 +110,16 @@ Tips for Using Support Effectively
    
    * Security-first design = You hold your keys
 
-With both self-service and live support options — including **Kraken Support Number ⌚+1.806.281.2627 OR ⌚1‼️-214-‼️688‼️9672** — you’re never alone in managing your digital assets.
+With both self-service and live support options — including **Kraken Support Number ⌚+1.806.281.2627 OR ⌚1‼️-636-‼️252‼️0271** — you’re never alone in managing your digital assets.
 
 Conclusion: Help Is Just a Call Away
 ----------------------------------------
 
 Crypto freedom means self-responsibility — but that doesn’t mean you’re on your own.
 
-If you’re facing wallet trouble, need help understanding features, or just want peace of mind, the **Kraken Wallet Support Number 📞 +1-806-281-2627 or +1-214-688-9672** is your direct line to expert assistance.
+If you’re facing wallet trouble, need help understanding features, or just want peace of mind, the **Kraken Wallet Support Number 📞 +1-806-281-2627 or +1-636-252-0271** is your direct line to expert assistance.
 
 
-
-
-Add your content using ``reStructuredText`` syntax. See the
-`reStructuredText <https://www.sphinx-doc.org/en/master/usage/restructuredtext/index.html>`_
-documentation for details.
 
 
 .. toctree::
